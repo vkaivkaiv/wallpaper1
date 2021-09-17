@@ -1,2 +1,2 @@
-# wallpaper1
+# cute wallpapers
 Simple and beautiful wallpapers.
